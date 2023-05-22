@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @UlasDeveci
-- 👀 I’m interested in ...Economy
+- 👀 I’m interested in ...Forex Trading
 - 🌱 I’m currently learning ... Physics
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...ulasdeveci50@gmail.com
